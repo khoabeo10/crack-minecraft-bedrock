@@ -1,2 +1,2 @@
 # crack-minecraft-bedrock
-crack minecraft berock free
+crack minecraft bedrock free
